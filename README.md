@@ -1,5 +1,5 @@
 # 💫 About Me:
- 🇧🇩 From Bangladesh<br>🎓 Under Grad Student<br>💻Computer Science Major<br>⚽ Football for life
+🎓 Under Grad Student<br>💻Computer Science Major<br>⚽ Football for life
 
 
 ## 🌐 Socials:
