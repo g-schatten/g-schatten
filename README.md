@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Under Grad Student<br>💻Computer Science Major<br>⚽ Football for life
+🎓 Under Grad<br>💻Computer Science Major<br>⚽ Neymar Jr.
 
 
 ## 🌐 Socials:
